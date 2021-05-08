@@ -38,3 +38,15 @@
 
 <hr>
 
+**Q4 Solution**
+
+<hr>
+
+1. b
+2. d ==> **Remember**
+3. d ==> **Remember**
+4. b ==> **Remember**
+5. Doubt
+
+<hr>
+
