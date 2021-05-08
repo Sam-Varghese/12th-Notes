@@ -62,3 +62,15 @@
 
 <hr>
 
+**Q6 Solution**
+
+<hr>
+
+1. b
+2. d ==> **Remember**
+3. a ==> **Remember**
+4. d ==> **Remember**
+5. b ==> **Remember**
+
+<hr>
+
