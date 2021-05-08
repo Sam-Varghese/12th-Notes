@@ -110,3 +110,14 @@
 
 <hr>
 
+**Q10 Solution**
+
+<hr>
+
+1. a
+2. Doubt
+3. b
+4. Doubt
+5. b
+
+<hr>
