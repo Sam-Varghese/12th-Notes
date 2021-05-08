@@ -14,3 +14,15 @@
 
 <hr>
 
+**Q2 Solution**
+
+<hr>
+
+1. a
+2. c
+3. a
+4. a ==> **Remember**
+5. d ==> **Remember**
+
+<hr>
+
